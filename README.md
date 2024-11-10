@@ -1,0 +1,2 @@
+# lochin
+Lochin ko'zi
